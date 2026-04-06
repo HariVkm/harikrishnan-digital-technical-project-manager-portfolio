@@ -4,6 +4,7 @@ Led cross-functional teams to deliver scalable websites, optimized workflows, an
 Zoople Technologies Internship Project | ladies & mens gym vaikom:https://thekochifit.rf.gd/
 
 Digital Marketing | Edxera:https://edxera.com
+
 Software Architect | sbn technologics pvt. ltd | https://sbntech.com/
 
 https://www.linkedin.com/posts/harikrishnan-a-dpm_projectmanagement-digitaltransformation-opentowork-activity-7446147318334238720-Xyee?utm_source=share&utm_medium=member_desktop&rcm=ACoAACY--hwBKOdTbPcSKk48eu66vqhn5vpLoAo
