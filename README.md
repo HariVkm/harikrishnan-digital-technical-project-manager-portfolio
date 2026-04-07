@@ -1,5 +1,7 @@
 Project Manager | Onesoft Technologies| https://onesoftapps.com/
-Led cross-functional teams to deliver scalable websites,apps, optimized workflows, and ensured on-time, client-focused project execution.
+Led cross-functional teams to deliver scalable websites,apps, optimized workflows, and ensured on-time, client-focused project execution
+
+https://docs.google.com/spreadsheets/d/1VyjcIeHWFx-w-VTvDQMvQYnuhWAtlsYEPH6eEgKk9nY/edit?usp=sharing
 
 Zoople Technologies Internship Project | ladies & mens gym vaikom:https://thekochifit.rf.gd/
 
