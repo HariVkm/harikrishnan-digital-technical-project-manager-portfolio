@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://hariVkm.github.io/harikrishnan-digital-technical-project-manager-portfolio/sitemap.xml
