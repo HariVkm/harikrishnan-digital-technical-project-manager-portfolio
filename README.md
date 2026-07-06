@@ -14,6 +14,6 @@ https://www.linkedin.com/posts/harikrishnan-a-dpm_projectmanagement-digitaltrans
 
 https://www.linkedin.com/posts/harikrishnan-a-dpm_opentowork-projectmanagement-digitaltransformation-activity-7440327892280012800-qPhl?utm_source=share&utm_medium=member_desktop&rcm=ACoAACY--hwBKOdTbPcSKk48eu66vqhn5vpLoAo
 
-Reference 1| Project Manager | Onesoft Technologies|Harys-9656707783
+Reference 1| Project Manager | Onesoft Technologies |Harys |CEO-9656707783
 
-Reference 2 | Digital Marketing | Cosysta/Edxera|Sharan - 8075707353/8129935578
+
